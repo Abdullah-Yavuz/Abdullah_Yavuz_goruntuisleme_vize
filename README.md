@@ -1,0 +1,1 @@
+# Abdullah_Yavuz_goruntuisleme_vize
